@@ -1,4 +1,4 @@
-<h1>Quotex Promo Code "DEALA" – Get a 50% Deposit Bonus in March 2025</h1>
+    <h1>Quotex Promo Code "DEALA" – Get a 50% Deposit Bonus in April 2025</h1>
 
 <p>Looking for a verified and active promo code to maximize your trading funds? The Quotex promo code <strong>“DEALA”</strong> is available right now, offering an incredible <strong>+50% deposit bonus</strong> for new users. By using this special code, you can significantly increase your trading balance, giving you more opportunities to profit in the market.</p>
 
