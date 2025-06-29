@@ -18,7 +18,7 @@
         <tr>
             <td><a href="https://smartthriftfinder.com/quotex-kpseo">DEALA</a></td>
             <td>50% Deposit Bonus</td>
-            <td>✅ Verified and Active in March 2025</td>
+            <td>✅ Verified and Active in June 2025</td>
             <td>💵 150 USD</td>
         </tr>
     </tbody>
