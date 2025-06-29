@@ -30,7 +30,7 @@
 <p>Claiming your <strong>50% deposit bonus</strong> is quick and easy. Just follow these steps:</p>
 
 <ol>
-    <li><strong><a href="<a href="https://smartthriftfinder.com/quotex-kpseo">Register on Quotex</a></strong> – If you are new to Quotex, create your account by signing up on the official website. It only takes a few minutes.</li>
+    <li><strong><a href="https://smartthriftfinder.com/quotex-kpseo">Register on Quotex</a></strong> – If you are new to Quotex, create your account by signing up on the official website. It only takes a few minutes.</li>
     <li><strong>Make a Deposit</strong> – To activate the bonus, you need to deposit at least $50. The higher your deposit, the bigger your bonus.</li>
     <li><strong>Enter the Promo Code "DEALA"</strong> – During the deposit process, enter the promo code <strong>"DEALA"</strong> to claim your <strong>+50% bonus</strong>.</li>
     <li><strong>Enjoy Your Bonus</strong> – Your deposit will be instantly increased by 50%. For instance, a $50 deposit will give you an extra $25, leaving you with $75 to trade.</li>
